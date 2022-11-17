@@ -1,2 +1,2 @@
 hey guys update will be soon 
-Any help contact :@smartwaste.ccet@gmail.com
+Any help contact :@idocareidc@gmai.com
